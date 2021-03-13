@@ -21,6 +21,5 @@ To export json to mysql, in the fifth line you need to specify the data to conne
   
 
 Contact:    
-VK: titsex (vk.com/titsex)      
-INST: tit_tlt (instagram.com/tit_tlt)      
+VK: titsex (vk.com/titsex)          
 MAIL: aravan962@gmail.com
